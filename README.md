@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... my student projects
 - 📫 How to reach me ... donnacancode@gmail.com
 - 😄 Pronouns: ... she/her
-- ⚡ Fun fact: ... I work as a brewery manager and I really don't care for beer
+- ⚡ Fun fact: ... I can pat my head and rub my belly at the same time :) 
 
 <!---
 donnacancode/donnacancode is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
