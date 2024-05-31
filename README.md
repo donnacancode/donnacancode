@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @donnacancode
-- 👀 I’m interested in ... keeping my 40-year old brain young
+- 👀 I’m interested in ... keeping my 41-year old brain young
 - 🌱 I’m currently learning ... how to code!
 - 💞️ I’m looking to collaborate on ... my student projects
 - 📫 How to reach me ... donnacancode@gmail.com
